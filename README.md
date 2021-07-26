@@ -1,1 +1,1 @@
-https://github.com/TimNurMur/rsschool-cv/
+https://TimNurMur.github.io/rsschool-cv/
