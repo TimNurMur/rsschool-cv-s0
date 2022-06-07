@@ -9,7 +9,7 @@
 Contacts
 | Phone: | Email: | VK: | Discord: |
 |---|---|---|---|
-| *+7(912)874-97-82* | *Tim.Nur-Mur@mail.ru* | *[VK id](https://vk.com/idrakosha)* | *SaYFu(@TimNurMur) (rs-school server)* |
+| *+0(000)000-00-00* | *Tim.Nur-Mur@mail.ru* | *[VK id](https://vk.com/idrakosha)* | *SaYFu(@TimNurMur) (rs-school server)* |
 
 **Location:** *Izhevsk*
 
